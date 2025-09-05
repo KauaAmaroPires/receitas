@@ -1,0 +1,1 @@
+# Receita: Morango do Amor
